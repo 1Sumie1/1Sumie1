@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me by tech
-- 😄 Pronouns: Sumeyra (u can only get if turkush)
+- 😄 Pronouns: Sumeyra (u can only get if turkish)
 - ⚡ Fun fact: I LOVE ANIME
 
 <!---
